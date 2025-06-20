@@ -9,7 +9,7 @@
 
 <a href="https://74mao.com/">74猫传送门</a>
 
-<a href="https://li77.pages.dev/"黑料</a>
+<a href="https://li77.pages.dev/">黑料</a>
 
 <a href="https://li001.pages.dev/">51视频</a>
 
